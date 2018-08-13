@@ -1,5 +1,5 @@
 # Hello-World
-What up. So I geuss I'm supposed to write about myself and stuff...
+So I geuss I'm supposed to write about myself...
 So 
 I
 changed 
